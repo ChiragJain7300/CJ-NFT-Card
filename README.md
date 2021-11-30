@@ -1,1 +1,1 @@
-NFT Card Template from FrontendMento.com 
+NFT Card Template from FrontendMentor.com 
